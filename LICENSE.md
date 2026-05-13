@@ -1,4 +1,4 @@
-#  
+#  smart Script for escape tsunami for brainrots is the best escape tsunami for brainrots Script, featuring silent aim and auto-collect. Safe and
 
 
 
